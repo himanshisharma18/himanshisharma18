@@ -10,7 +10,7 @@ I'm currently learning and practicing:
 
 ### 📫 Connect with Me
 
-
+[Linkdin] [https://www.linkedin.com/in/himanshi-sharma-727240329]
 📧 Email: godhimanshisharma@gmail.com
 
 Thanks for visiting! 😊
